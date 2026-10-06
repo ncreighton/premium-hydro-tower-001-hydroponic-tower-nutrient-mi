@@ -1,0 +1,2 @@
+# premium-hydro-tower-001-hydroponic-tower-nutrient-mi
+Stop guessing nutrient ratios for your hydroponic tower. This Notion template turns mixing from a frustrating trial into a precise, repeatable craft.  Say goodbye to burnt lettuce and wasted nutrients. The Hydroponic Tower &amp; Nutrient Mix Craft Hub eliminates guesswork by giving you a structured system to design, log, and refine custom mixes tailore
